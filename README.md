@@ -1,6 +1,6 @@
 ![I'm a Web Desinger](https://pbs.twimg.com/profile_banners/1428262539553644548/1629365266/600x200)
 
-### Hi there 👋, SHAON HALDER
+### Hi there 👋, I'm SHAON HALDER
 #### I'm a Web Desinger
 
 
