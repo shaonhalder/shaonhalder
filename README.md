@@ -4,7 +4,7 @@
 #### I'm a Web Desinger
 
 
-Hi! My name is Shaon Halder. I'm a Professional website Design Expert, and I'm very passionate and dedicated to my work. With 2+ years of experience as a Professional Web Designer, I have acquired the skills and knowledge necessary to make your project a success. I enjoy every step of the design process, from discussion and collaboration. I have worked with various programming languages including Html, Css,[Full Html5 and Css3 markup], and Photoshop. Please contact us, if you are interested in me. Or if you have any questions please do not hesitate to contact me before place an order -- Thank You!
+Hello, My name Shaon Halder. I am from Bangladesh. I am a student I am studying in inter 2nd year in Humanities. I like to do web coding fixing problems, and designing websites. I always learn new and updated things. Coding & Designing are part of my life. I have more than 1+ Years of experience in web design. My great skills are HTML5, CSS3, Bootstrap 5 & JaveScript, PSD to HTML, Figma to HTML, PDF to HTML. I am working on Fiverr. My coding is pixel perfect and also responsive, full, and fresh hand code. I would love to do creative ideas to implement in the real world. I focus on 3 support. Thanks, and Records SHAON HALDER
 
 Skills: HTML / CSS / JS / Adobe Photoshop / Web Design / Psd to Html
 
